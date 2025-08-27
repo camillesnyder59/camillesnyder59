@@ -1,7 +1,7 @@
 ## Hi there, I'm Camille Snyder 👋  
 
 🎯 **Healthcare Analytics | Benefits Strategy | Workforce Insights | Public Policy**  
-📊 PMP Certified | Six Sigma Green Belt | Healthcare Data Analytics (In Progress) | UChicago Alumni
+📊 PMP Certified | Six Sigma Green Belt | Healthcare Data Analytics (In Progress) | UChicago Alum
 
 ---
 
